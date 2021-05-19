@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FoxYouTube
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on my Roblox Group
+- 📫 How to reach me YouTube:https://youtu.be/LuM5mhiF0uY Roblox Group: Square Photo Group. It will be the first one.
